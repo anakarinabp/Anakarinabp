@@ -3,11 +3,8 @@
 
 **anakarinabp/Anakarinabp** 
 
-Hi from Brasil
-
-- 🔭 I’m currently working as Intern 
+Hi from Brasil 
 - 🌱 I’m currently learning 101 Code
 - 📫 How to reach me: karina.bratti@gmail.com
 - 😄 Pronouns: she/her
-- 🤘Music: Fleetwood mac and Gilberto Gil
 
